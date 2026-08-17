@@ -35,3 +35,8 @@ Just having them around makes me happy! ♡
 ╰───────────────୨ৎ───────────────╯
 
 </details>
+<br>
+
+<p align="center">
+  <img src="./friends.jpg" width="500">
+</p>
