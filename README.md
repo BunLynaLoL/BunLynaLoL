@@ -3,7 +3,7 @@
   ─────── ♡ 🎀 ♡ ───────
 </p>
 <p align="center">
-  BunLyna! 我不知道还能说什么！
+  Bun! 我不知道还能说什么！
 </p>
 <details>
 <summary>🎀 Best friend/besties</summary>
