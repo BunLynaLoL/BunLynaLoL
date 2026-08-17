@@ -17,7 +17,7 @@ She always plays with me, she's my motivation to keep going, she's sociable! ♡
 🧸 **Jen**  
 A young girl who was always there for everyone, including me; she was kind and cheerful! I really admired her! ♡
 
-🎀 **Keico**  
+🫰 **Keico**  
 A sociable, cheerful, and very kind person! ♡
 
 🪽 **Mew**  
